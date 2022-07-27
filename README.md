@@ -50,6 +50,8 @@ https://www.youtube.com/c/GreatLearningOfficial
 
 https://www.youtube.com/user/thenewboston/featured
 
+https://www.scaler.com/topics/python/ 
+
 
 
 
